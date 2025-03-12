@@ -4,7 +4,7 @@
 🎀 **Name**: Lari  </br>
 🎓 **Student at Informatics** (Sibiu, Romania) 💻  </br>
 💌 **Sibiu IT Cluster Volunteer**  </br>
-🎂 **Age**: 19 levels (aka 19 years old) 🌸  </br>
+🎂 **Age**: 19 levels 🌸  </br>
 🎨 **Hobbies**: Writing poetry ✍️, painting 🎨, singing 🎤 </br> 
 
 Thank you for visiting my GitHub profile! 🎀 Let’s chat, collaborate, and create something magical together!🌸✨</br>
